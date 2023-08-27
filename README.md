@@ -1,0 +1,1 @@
+# Econometrics-Relation-between-Exchange-Rate-and-GDP-for-India-and-USA
